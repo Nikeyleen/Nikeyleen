@@ -4,4 +4,4 @@
 - Me in www.linkedin.com/in/nikeyleen
 
 
-- nikey0.wordpress.com
+- https://nikey0.wordpress.com/
