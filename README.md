@@ -4,4 +4,4 @@
 - Me in www.linkedin.com/in/nikeyleen
 
 
-- https://nikey0.wordpress.com/
+-my web-site and portfolio https://nikey0.wordpress.com/
